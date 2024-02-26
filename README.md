@@ -1,0 +1,1 @@
+On the day of Feburary 25th in the year of Lord Jesus Christ 2024, I was given a vision by Jesus himself to create this repository in order to serve our lord Jesus Chirst by making a game. It is also possible that this vision migth have come in to my head after I was after I was harrassed for my race and gender.
